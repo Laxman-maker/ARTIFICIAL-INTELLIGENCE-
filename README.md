@@ -16,4 +16,3 @@
 
 **OUTPUT**
 
-https://images.app.goo.gl/KfFFHY76j28fq7TE8
